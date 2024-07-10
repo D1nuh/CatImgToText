@@ -1,0 +1,3 @@
+Usuário: Transcreva e detalhe esta imagem
+
+Copilot: Claro! Essa imagem mostra um close-up do rosto de um gato. O gato tem um padrão de pelagem listrada, típico dos gatos tabby, com marcações ao redor dos olhos que realçam sua forma amendoada. Os olhos do gato são especialmente marcantes, sendo grandes e de um verde brilhante, que se destaca contra a pelagem mais escura e o fundo preto. A iluminação destaca um lado do rosto do gato, criando um contraste entre luz e sombra que adiciona profundidade à imagem. Não há texto ou conteúdo relacionado a tarefas escolares nesta imagem para transcrever. Como posso ajudar mais? 😊
